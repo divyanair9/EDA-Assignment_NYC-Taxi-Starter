@@ -1,0 +1,1 @@
+I have missed adding the PDF file to the zip so request you to please consider this file while you evaluate the report.[Report_NYC_Taxi_Operations_Starter_DivyaNair.pdf](https://github.com/user-attachments/files/19763390/Report_NYC_Taxi_Operations_Starter_DivyaNair.pdf)
